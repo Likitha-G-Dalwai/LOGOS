@@ -6,3 +6,4 @@ I have created my own LOGOS using various tools.
 ![focus (1)](https://github.com/Likitha-G-Dalwai/LOGOS/assets/161719806/a9934b8e-a81b-46d6-b270-49c1ff288495)
 
 ![focus](https://github.com/Likitha-G-Dalwai/LOGOS/assets/161719806/aceea4d2-fb93-4912-b926-6542c01d3d71)
+https://github.com/Likitha-G-Dalwai/LOGOS/blob/d859bb4973b75de107b4640254ec17480114f871/IMG-20260109-WA0000.jpg
